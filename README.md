@@ -10,5 +10,5 @@
 - 👯 I’m looking to collaborate on anything that will teach me and seems fun
 - 🤔 I’m looking for help with anything, lol, I don't know much right now
 - 💬 Ask me about my favorite MMO, NFL team, or Star Wars book
-- 📫 How to reach me: LinkedIn, I guess Stephen Arnett
+
 
